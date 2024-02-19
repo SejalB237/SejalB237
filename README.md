@@ -11,9 +11,8 @@
 
 - 👨‍💻 All of my projects are available at [https://sejalbaraiportfolio.netlify.app/](https://sejalbaraiportfolio.netlify.app/)
 
-- 📫 How to reach me **Sejalbaraisocial@gmail.com**
+- 📫 How to reach me -> **Sejalbaraisocial@gmail.com**
 
-- 📄 My [Resume](https://drive.google.com/file/d/1PGabeSNXKUG5MXvuyVw575Mx0BgVokVz/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
