@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Sejalbaraisocial@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1PGabeSNXKUG5MXvuyVw575Mx0BgVokVz/view?usp=sharing](https://drive.google.com/file/d/1PGabeSNXKUG5MXvuyVw575Mx0BgVokVz/view?usp=sharing)
+- 📄 My [Resume](https://drive.google.com/file/d/1PGabeSNXKUG5MXvuyVw575Mx0BgVokVz/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
